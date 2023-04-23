@@ -9,4 +9,4 @@ Meu nome é Flávio Belmiro, sou Designer Gráfico/Web Designer 🖥️
 - 🦾 Trabalho no Colégio Anglo-Ameriano
 - 😊 Posso te ajudar com Wordpress, Edição de vídeos, Criação de identidade visual
 - 🖼️ Possso te colaborar com a parte de Front-end
-- 📭 Confira meu perfil no Linkedin: [Flavio Henrique Dias Belmiro](https://www.linkedin.com/in/flaviohenriquedias/)|fbelmiro@ymail.com
+- 📭 Confira meu perfil no Linkedin: [Flavio Henrique Dias Belmiro](https://www.linkedin.com/in/flaviohenriquedias/) | fbelmiro@ymail.com
