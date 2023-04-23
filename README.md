@@ -4,7 +4,7 @@
 
 Olá mundo 👋
 
-Meu nome é Flávio Belmiro, sou designer gráfico/web designer 🖥️
+Meu nome é Flávio Belmiro, sou Designer Gráfico/Web Designer 🖥️
 
 - 🦾 Trabalho no Colégio Anglo-Ameriano
 - 😊 Posso te ajudar com Wordpress, Edição de vídeos, Criação de identidade visual
